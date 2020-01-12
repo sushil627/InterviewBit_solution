@@ -1,1 +1,1 @@
-<a href="https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/Rotating_earth_%28large%29.gif/200px-Rotating_earth_%28large%29.gif">
+<a href="https://imgflip.com/gif/3lvmtn"><img src="https://i.imgflip.com/3lvmtn.gif" title="made at imgflip.com"/></a>
